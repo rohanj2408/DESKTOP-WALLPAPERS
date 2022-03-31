@@ -1,2 +1,2 @@
 # WALLPAPERS
-This repository contains HD wallpapers which provide peace of mind.
+This repository contains HD WALLPAPERS which provide peace of mind.
